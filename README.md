@@ -1,2 +1,1 @@
-***My current art link - https://magma.com/d/eLYowAt2ig.***
-**The main idea was  - on chareter jaws(attached). pls add a little like a soldier slaying a monster(dragging him with a chain). his head should be this charecter. pls also add a skull earing on his fin instead of the gold ring. u can also leave ur credits i have no problem with that. pls add a little dark theme. the monster is like rezzoch the ancient. Just do it on different copies of the orignal please.**
+
